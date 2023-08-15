@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Davijesusy
-- 👀 I’m interested in ... copywrigth
+8- 👋 Hi, I’m @Davijesusy
+- 👀 I’m interested in copywrigth
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on sua melhora e no melhor jeito de colaborar com suas necessidades 
 - 📫 How to reach me ... 8897984857
 
 <!---
